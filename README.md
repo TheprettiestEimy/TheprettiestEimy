@@ -44,4 +44,4 @@
 
 <img width="1016" height="1016" alt="image" src="https://github.com/user-attachments/assets/611372e4-602f-4f99-845b-78ed00f8e97c" /> <img width="250" height="495" alt="image" src="https://github.com/user-attachments/assets/986968ff-9ddf-4a8c-a2db-0cc78f65a409" />
 
-
+[@jewelryboxyaoi](https://github.com/jewelryboxyaoi) Dear Glisten. YOURE GAY. YOURE GAY GAY GAY GAY. STOP ACTING LIKE UR NOT GAY, BCS UR GAY. UR SO GAY I CANT STAND YOU. I CANT STAND UR GAYNESS, ITS GLEAMING OFF YOUR GLASS MIRROR FACE. Also fat dandy and fat rodger arent gonna come over and ask u to rub their big bellies. u chud. you gay little chud. Now..back to bsuiness, also, youre gay. youre super gay. so very very gay. gay gay gay homosexual gay gay gay queer man mirror, ALSO YOU KISS BOXTEN. THAT MAKES U GAYER. UR SO GAY. SO SO SO VERY GAY.
