@@ -19,7 +19,6 @@
 <br><p align="center"> <img width="500" height="300" alt="mooncookiebanner1" src="https://github.com/user-attachments/assets/59e68fa7-0140-45bb-a4f3-fa2afd8c4c67" />
 
 <br><p align="center"> "𝙏𝙝𝙚 𝙢𝙤𝙤𝙣 𝙞𝙨 𝙗𝙚𝙖𝙪𝙩𝙞𝙛𝙪𝙡, 𝙞𝙨𝙣'𝙩 𝙞𝙩, 𝙂𝙞𝙣𝙜𝙚𝙧?."
-
  <br><p align="center"> "𝙔𝙚𝙨, 𝙗𝙪𝙩 𝙩𝙝𝙚 𝙨𝙩𝙖𝙧𝙨 𝙞𝙣 𝙮𝙤𝙪𝙧 𝙚𝙮𝙚𝙨 𝙠𝙚𝙚𝙥 𝙢𝙚 𝙛𝙤𝙘𝙪𝙨𝙚𝙙 𝙞𝙣𝙨𝙩𝙚𝙖𝙙, 𝘼𝙨𝙩𝙧𝙤.."
  <br><p align="center"> ''Ginger fictkin / irl . Astro yume . '' 
 <br><p align="center"> ily oomfs <3
