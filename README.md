@@ -12,7 +12,7 @@
      
    <br><p align="center">    18 ノ Pansexual  + gndfluid
     <br><p align="center"> She ノ xe ノ any
-<br><p align="center">   —    “ lyrics “ .ᐟ.ᐟ
+<br><p align="center">   —    “ Is my..makeup smudged?. “ .ᐟ.ᐟ
 <br><p align="center"> ⋮ ⌗ ┆ @ Ginger fictkin , Astro yume .
 
 <br><p align="right">⠀⠀⠀᭥    w2iuf / c+h ok unless stated     ۪.    on dw area cliffs most times    ݁    —⠀⠀ 
