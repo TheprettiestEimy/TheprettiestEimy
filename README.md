@@ -4,7 +4,7 @@
 
 <br><p align="center"><img width="3072" height="2304" alt="image" src="https://github.com/user-attachments/assets/974ef82f-fa09-4603-acfe-fa2c55e01dbf" />
 
-<br><p align="center"> art creds : official Ginger renders , my own art at the bottom right .
+<br><p align="center"> art creds : official Ginger renders , my ginger kinsona art at the bottom right .
 
 <br><p align="center"> Ginger / Indie / Vee 
 
