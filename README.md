@@ -1,6 +1,6 @@
 
 
-<br><p align="center"> WIP ATM ,, RMKING THIS ! !
+<br><p align="center"> SIGN STRAW , NEW STRAW WILL B UP SOON !!
 
 <br><p align="center"><img width="3072" height="2304" alt="image" src="https://github.com/user-attachments/assets/974ef82f-fa09-4603-acfe-fa2c55e01dbf" />
 
