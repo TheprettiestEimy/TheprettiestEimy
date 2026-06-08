@@ -1,4 +1,4 @@
-
+->  U werent replaced, you wanted space and we gave it. we've still been waiting for u but youve blocked and removed us from everything so we assumed u were done. Theres no point arguing about it, if you wanna talk, then talk instead of assuming, please. / aimed + lh
 
 <br><p align="center"> SIGN STRAW !!! <3
 
