@@ -3,7 +3,7 @@
 <br><p align="center"><img width="3072" height="2304" alt="image" src="https://github.com/user-attachments/assets/368fa275-2787-42a6-bd7d-7ab2ef8bfeb7" />
 
 
--# bart not mine , graphic put together by me !
+-# art not mine , graphic put together by me !
 
 <br><p align="center">⠀⠀⠀᭥    w2iuf / c+h ok  . , Art below is mine     ۪.    on dw area cliffs most times    ݁    —⠀⠀ 
 <br><p align="center"> #1 mooncookie shipper⠀⁔⠀moonflower + Strawberrycookie dni
