@@ -1,3 +1,9 @@
+<br><p align="center"> Yes im that person with the 40+ ginger skins
+
+<br><p align="center">  yes im that person who calls out ppl who make ginger white
+
+<br><p align="center">  no im not sorry about it, if ur mad abt it BLOCK ME.
+
 <br><p align="center"> "𝘎𝘪𝘯𝘨𝘦𝘳 𝘮𝘢𝘺 𝘣𝘦 𝘢 𝘭𝘪𝘵𝘵𝘭𝘦 𝘴𝘩𝘺, 𝘣𝘶𝘵 𝘩𝘢𝘴 𝘢𝘯 𝘦𝘺𝘦 𝘧𝘰𝘳 𝘥𝘦𝘴𝘪𝘨𝘯,,!"
 <br><p align="left"> "𝘏𝘦𝘳 𝘢𝘳𝘵 𝘪𝘴 𝘧𝘳𝘰𝘴𝘵𝘦𝘥 𝘪𝘯𝘵𝘰 𝘥𝘦𝘭𝘪𝘤𝘢𝘵𝘦 𝘥𝘦𝘵𝘢𝘪𝘭𝘴 𝘰𝘯 𝘩𝘦𝘳 𝘧𝘢𝘷𝘰𝘳𝘪𝘵𝘦 𝘣𝘢𝘬𝘦𝘥 𝘨𝘰𝘰𝘥𝘴!"
 <br><p align="right"> "..𝘛𝘩𝘰𝘶𝘨𝘩 𝘵𝘩𝘦 𝘵𝘢𝘴𝘵𝘦 𝘮𝘢𝘺 𝘯𝘰𝘵 𝘣𝘦 𝘢𝘴 𝘭𝘰𝘷𝘦𝘭𝘺 𝘢𝘴 𝘵𝘩𝘦 𝘭𝘰𝘰𝘬𝘴!."
