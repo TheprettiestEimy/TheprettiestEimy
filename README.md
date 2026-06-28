@@ -8,7 +8,7 @@
 
 -# art not mine , graphic put together by me !
 
-<br><p align="center">⠀⠀⠀᭥    w2iuf / c+h ok  . , Art below is mine     ۪.    on dw area cliffs most times    ݁    —⠀⠀ 
+<br><p align="center">⠀⠀⠀᭥    w2iuf / c+h ok  . , Art below is mine     ۪.    under 15 dni. i am an ADULT.     ݁    —⠀⠀ 
 <br><p align="center"> #1 mooncookie shipper⠀⁔⠀moonflower + Strawberrycookie dni
 ⠀⠀<br><p align="center"> ——⠀⠀‶ Astro..wait, I have to ask.! ‶  —  @ 90% offtab ♡
 <br><p align="center"> <img width="433" height="577" alt="image-removebg-preview (1)" src="https://github.com/user-attachments/assets/ab907131-cf39-4918-8370-d7e19f13b88b" />
