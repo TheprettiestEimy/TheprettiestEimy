@@ -4,6 +4,7 @@
 
 <br><p align="center"> .˚⊹. ࣪𓉸 ࣪⊹˚. check straw , scroll to the bottom. .˚⊹. ࣪𓉸 ࣪⊹˚.
 
+<br><p align="center"> ─── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ───
 
 <br><p align="center"><img width="999" height="709" alt="image" src="https://github.com/user-attachments/assets/eb967b90-0c30-4c1a-8a98-d375e15e90b2" />
 
