@@ -1,7 +1,7 @@
 <br><p align="center"> Yes im that person with the 40+ ginger skins
 <br><p align="center">  yes im that person who calls out ppl who make ginger white
 <br><p align="center">  no im not sorry about it, if ur mad abt it BLOCK ME.
-# info below
+# wip below
 <br><p align="center"> "you werent really here, I miss you."
 
 
