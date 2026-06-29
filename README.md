@@ -1,8 +1,8 @@
 <br><p align="center"> Yes im that person with the 40+ ginger skins
 <br><p align="center">  yes im that person who calls out ppl who make ginger white
 <br><p align="center">  no im not sorry about it, if ur mad abt it BLOCK ME.
-# wip below
-<br><p align="center"> .˚⊹. ࣪𓉸 ࣪⊹˚. "you werent really here, I miss you." .˚⊹. ࣪𓉸 ࣪⊹˚.
+
+<br><p align="center"> .˚⊹. ࣪𓉸 ࣪⊹˚. check straw , scroll to the bottom. .˚⊹. ࣪𓉸 ࣪⊹˚.
 
 
 <br><p align="center"><img width="999" height="709" alt="image" src="https://github.com/user-attachments/assets/eb967b90-0c30-4c1a-8a98-d375e15e90b2" />
