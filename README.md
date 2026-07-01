@@ -5,6 +5,7 @@
 
 
 <br><p align="center"> .˚⊹. ࣪𓉸 ࣪⊹˚. check straw , scroll to the bottom. .˚⊹. ࣪𓉸 ࣪⊹˚.
+<br><p align="center"> If someone i interact with is problematic , pls tell me sobs
 
 <br><p align="center"> ─── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ───
 
