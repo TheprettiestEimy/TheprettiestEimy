@@ -14,9 +14,18 @@
 
 -# art not mine !  , Ginger + glisten is me and twin!!!!! 
 <br><p align="center"> ─── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ───
-<br><p align="center"> 🦇.˚⊹. ࣪𓉸 ࣪⊹˚. 18 , pan / gndrfld
-<br><p align="center"> ⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺ Ginger irl / Astro yume .
-<br><p align="center"> . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. Under 15 , do not interact with me. 
-<br><p align="center"> ⊹ ࣪ ˖⊹ ࣪ ˖ ' ​🇮​​🇸​ ​🇹​​🇭​​🇮​​🇸​ ​🇹​​🇭​​🇪​ ​🇫​​🇪​​🇪​​🇱​​🇮​​🇳​​🇬​ ​🇴​​🇫​ ​🇱​​🇴​​🇻​​🇪​ ​🇹​​🇭​​🇦​​🇹​ ​🇮​ ​🇭​​🇦​​🇻​​🇪​ ​🇴​​🇳​​🇱​​🇾​ ​🇭​​🇪​​🇦​​🇷​​🇩​ ​🇦​​🇧​​🇴​​🇺​​🇹​? '
-<br><p align="center"> ⊹ ࣪ ˖⊹ ࣪ ˖ ' ​🇧​​🇪​​🇨​​🇦​​🇺​​🇸​​🇪​ ​🇲​​🇾​ ​🇭​​🇪​​🇦​​🇷​​🇹​ ​🇧​​🇪​​🇦​​​​🇹​​🇸​ ​🇫​​🇴​​🇷​ ​🇾​​🇴​​🇺​ ​🇫​​🇷​​🇴​​🇲​ ​🇹​​🇭​​🇪​ ​🇧​​🇪​​🇬​​🇮​​🇳​​🇳​​🇮​​🇳​​🇬​. '
-<br><p align="center"> 🇩🇳🇦 - 🇧​​​​🇹​​🇸​ . ​
+
+<p align=center><br>ㅤ۫˚ ༘ ೀ⋆🍪｡˚
+<br>${\textsf{\color{#F05179}(๑ > ᴗ < ๑)°ᡣ𐭩 !!}}$ ${\textsf{\color{#FF94AE}Indie or Ginger}}$ 
+<br>ㅤ۫˚ ༘ ೀ⋆🍪｡˚
+
+<p align=right><br> ${\textsf{\color{#CF2D43}♡⸝　18 / pan , gndrfluid}}$ 　　
+<br> ${\textsf{\color{#DE3C52}   ⠀―⠀　　Astro yume , Ginger irl }}$　<img width="180" height="24" alt="image" src="https://github.com/user-attachments/assets/1c52b1d6-4dd3-49c8-ba84-06a3536f309b" />
+<br> ${\textsf{\color{#ED556A}⠀⠀　⠀✿⠀　Check straw for more / -15 dni　　　　₊　　˙　}}$ 
+  
+
+<br> ${\textsf{\color{#F27486}' ​🇮​​🇸​ ​🇹​​🇭​​🇮​​🇸​ ​🇹​​🇭​​🇪​ ​🇫​​🇪​​🇪​​🇱​​🇮​​🇳​​🇬​ ​🇴​​🇫​ ​🇱​​🇴​​🇻​​🇪​ ​🇹​​🇭​​🇦​​🇹​ ​🇮​ ​🇭​​🇦​​🇻​​🇪​ ​🇴​​🇳​​🇱​​🇾​ ​🇭​​🇪​​🇦​​🇷​​🇩​ ​🇦​​🇧​​🇴​​🇺​​🇹​? '　໒୧}}$　　
+<br> ${\textsf{\color{#A8c9ff}　　　𝄢　🇧​​🇪​​🇨​​🇦​​🇺​​🇸​​🇪​ ​🇲​​🇾​ ​🇭​​🇪​​🇦​​🇷​​🇹​ ​🇧​​🇪​​🇦​​​​🇹​​🇸​ ​🇫​​🇴​​🇷​ ​🇾​​🇴​​🇺​ ​🇫​​🇷​​🇴​​🇲​ ​🇹​​🇭​​🇪​ ​🇧​​🇪​​🇬​​🇮​​🇳​​🇳​​🇮​​🇳​​🇬​. ' ‿ }}$ 　　<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/b72be925-790c-4c4e-9874-b80b327b2101" />
+<img width="723" height="694" alt="image" src="https://github.com/user-attachments/assets/e053d78c-bb7c-4ac3-a38f-d6986c2548d9" /> 
+<br>${\textsf{\color{#F27496}౨ৎ⋆ ˚｡ !!}}$ ${\textsf{\color{#748BF2}me and him canon trust <3}}$ 
+
