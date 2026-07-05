@@ -9,10 +9,10 @@
 
 <br><p align="center"> ─── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ───
 
-<br><p align="center"><img width="3072" height="2304" alt="image" src="https://github.com/user-attachments/assets/e17c1bac-66f1-4465-8f0f-31fce2ecea61" />
+<br><p align="center"><img width="2000" height="1000" alt="image" src="https://github.com/user-attachments/assets/9c217bda-5902-470c-99dc-08f1473f1bfc" />
 
 
--# graphic is mine , art is not . 
+-# art not mine ! 
 <br><p align="center"> ─── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ───
 <br><p align="center"> 🦇.˚⊹. ࣪𓉸 ࣪⊹˚. 18 , pan / gndrfld
 <br><p align="center"> ⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺ Ginger irl / Astro yume .
