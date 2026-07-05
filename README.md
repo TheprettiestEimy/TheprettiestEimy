@@ -12,7 +12,7 @@
 <br><p align="center"><img width="2000" height="1000" alt="image" src="https://github.com/user-attachments/assets/9c217bda-5902-470c-99dc-08f1473f1bfc" />
 
 
--# art not mine ! 
+-# art not mine !  , Ginger + glisten is me and twin!!!!! 
 <br><p align="center"> ─── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ───
 <br><p align="center"> 🦇.˚⊹. ࣪𓉸 ࣪⊹˚. 18 , pan / gndrfld
 <br><p align="center"> ⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺ Ginger irl / Astro yume .
