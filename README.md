@@ -1,3 +1,7 @@
+THANK U @title-town FOR ADDING ME YAYYY!!!!
+
+<img width="414" height="57" alt="image" src="https://github.com/user-attachments/assets/4ce67cae-a70a-4eb3-93e7-f3171cfc2c8a" /> <-- DATS ME HI !!
+<br><p align="center"> ─── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ───
 
 
 <br><p align="center"><img width="2000" height="1000" alt="image" src="https://github.com/user-attachments/assets/9c217bda-5902-470c-99dc-08f1473f1bfc" />
@@ -32,6 +36,5 @@
 <br><p align="center"> If someone i interact with is problematic , pls tell me sobs
 
 <br><p align="center"> ─── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ───
-<img width="414" height="57" alt="image" src="https://github.com/user-attachments/assets/4ce67cae-a70a-4eb3-93e7-f3171cfc2c8a" /> <-- THANK UUUUUU
 
 
