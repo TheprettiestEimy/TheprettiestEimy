@@ -26,7 +26,7 @@ THANK U @title-town FOR ADDING ME YAYYY!!!!
 
 <br><p align="center"> ─── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ───
 
-<br><p align="center"> Yes im that person with the 60+ ginger skins
+<br><p align="center"> Yes im that person with the 70+ ginger skins
 <br><p align="center">  yes im that person who calls out ppl who make ginger white
 <br><p align="center">  no im not sorry about it, if ur mad abt it BLOCK ME.
 <br><p align="center"> Yes I am THE Ginger of the spawn dw area , feel free to int ok i promise i dont bite
