@@ -4,10 +4,10 @@ THANK U @title-town FOR ADDING ME YAYYY!!!!
 <br><p align="center"> ─── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ───
 
 
-<br><p align="center"><img width="2000" height="1000" alt="image" src="https://github.com/user-attachments/assets/9c217bda-5902-470c-99dc-08f1473f1bfc" />
+<br><p align="center"><img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/579b4217-ca9b-4540-a2ec-20146b36fae0" />
 
 
--# art not mine !  , Ginger + glisten is me and twin!!!!! 
+-# art mine !  , me and him ok? ok !!
 <br><p align="center"> ─── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ───
 
 <p align=center><br>ㅤ۫˚ ༘ ೀ⋆🍪｡˚
