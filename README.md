@@ -4,7 +4,7 @@ THANK U @title-town FOR ADDING ME YAYYY!!!!
 <br><p align="center"> ─── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ───
 
 
-<br><p align="center"><img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/579b4217-ca9b-4540-a2ec-20146b36fae0" />
+<br><p align="center"><img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/95b405bb-1205-4de6-a77d-51244f525cc0" />
 
 
 -# art mine !  , me and him ok? ok !!
