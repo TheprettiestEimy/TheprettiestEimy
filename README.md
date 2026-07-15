@@ -1,12 +1,41 @@
+<br><p align="center"><img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/f26bb4cd-a7b1-4870-94af-11368236358d" />
+<br><p align="center"><br>${\textsf{\color{#F27486}Indie}}$ ${\textsf{\color{#F05179}or}}$ ${\textsf{\color{#FF94AE}Ginger .}}$
+<br><p align="center"><br>${\textsf{\color{#748BF2}Eighteen, }}$ ${\textsf{\color{#abffff}Pansexual, }}$ ${\textsf{\color{#A8c9ff} Genderfluid !}}$
+<br><p align="center"><br>${\textsf{\color{#F05179}Ginger irl}}$ ${\textsf{\color{#FF94AE}/Fictkin}}$ 
+<br>
+<br><p align="center">${\textsf{\color{#748BF2}Astro yume . }}$ ${\textsf{\color{#abffff}Dbls iwc ,<3}}$ <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/35debc21-e34f-47c4-9782-6b85c1270781" />
+
+<br> ${\textsf{\color{#ED556A}⠀⠀　⠀✿⠀　Check straw for more / -15 dni　　　　₊　　˙　}}$ 
+
+<br><p align="left"><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/3208426c-c3bb-445d-96b2-8ff275a0ef95" />
+<br> ${\textsf{\color{#F27486}' ​🇮​​🇸​ ​🇹​​🇭​​🇮​​🇸​ ​🇹​​🇭​​🇪​ ​🇫​​🇪​​🇪​​🇱​​🇮​​🇳​​🇬​ ​🇴​​🇫​ ​🇱​​🇴​​🇻​​🇪​ ​🇹​​🇭​​🇦​​🇹​ ​🇮​ ​🇭​​🇦​​🇻​​🇪​ ​🇴​​🇳​​🇱​​🇾​ ​🇭​​🇪​​🇦​​🇷​​🇩​ ​🇦​​🇧​​🇴​​🇺​​🇹​? '　໒୧}}$　　
+<br><p align="right"><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/b26b6f83-2b9a-44bc-8375-09ddf3a0cde2" />
+<br> ${\textsf{\color{#A8c9ff}　　　𝄢　🇧​​🇪​​🇨​​🇦​​🇺​​🇸​​🇪​ ​🇲​​🇾​ ​🇭​​🇪​​🇦​​🇷​​🇹​ ​🇧​​🇪​​🇦​​​​🇹​​🇸​ ​🇫​​🇴​​🇷​ ​🇾​​🇴​​🇺​ ​🇫​​🇷​​🇴​​🇲​ ​🇹​​🇭​​🇪​ ​🇧​​🇪​​🇬​​🇮​​🇳​​🇳​​🇮​​🇳​​🇬​. ' ‿ }}$ 
+
+
 <br><p align="center"> ─── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ───
 
-<br><p align="center"> Yes im that person with the 100+ ginger skins
-<br><p align="center">  yes im that person who calls out ppl who make ginger white
-<br><p align="center"> Yes I am THE Ginger of the spawn dw area , feel free to int ok i promise i dont bite
+<br><p align="center">${\textsf{\color{#FF94AE}Yes im that person with the 100+ Ginger skins.}}$ 
+<br><p align="center"> ${\textsf{\color{#F05179}yes im that person who calls out ppl who make ginger white}}$ 
+<br><p align="center"> ${\textsf{\color{#F27486}Yes I am THE Ginger of the spawn dw area , feel free to int ok i promise i dont bite}}$ 
+
+<br><p align="center">${\textsf{\color{#748BF2}I am NOT my friends. Do not group me into drama with them. I block FREELY. Do not come and harass me if i have blocked you, it's for a reason.}}$ ${\textsf{\color{#abffff}And to the person stalking my ATA and insulting me, say it to my FACE.<3}}$
 
 
 <br><p align="center"> .˚⊹. ࣪𓉸 ࣪⊹˚. check straw + ata .˚⊹. ࣪𓉸 ࣪⊹˚.
 <br><p align="center"> If someone i interact with is problematic , pls tell me sobs
+
+<br><p align="center"> ─── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ───
+<br> ${\textsf{\color{#A8c9ff} Stamps ok?}}$ 
+
+<img width="86" height="18" alt="image" src="https://github.com/user-attachments/assets/7e660c9b-f0b9-48b0-b16d-65757ae6a77d" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/c05c74fb-0bf9-4da9-b001-3fae49754782" />
+<img width="106" height="57" alt="image" src="https://github.com/user-attachments/assets/3ba56861-a784-48f8-bea7-1a884bf0bff2" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/20164821-9d1d-4ea4-b015-c34c2fca515f" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/51677b4e-94cb-4ac6-845f-0c16c1e5bf86" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/dce2f5ce-bd30-4274-a574-a4f0089d6649" />
+<img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/04e96416-4ff0-43fe-bdc0-0235c9f95c3a" />
+<img width="735" height="492" alt="image" src="https://github.com/user-attachments/assets/71f803e3-438e-422c-8424-28fcea874433" />
 
 <br><p align="center"> ─── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ───
 THANK U @title-town FOR ADDING ME YAYYY!!!!
@@ -15,25 +44,6 @@ THANK U @title-town FOR ADDING ME YAYYY!!!!
 <br><p align="center"> ─── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ───
 
 
-<br><p align="center"><img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/95b405bb-1205-4de6-a77d-51244f525cc0" />
-
-
--# art mine !  , me and him ok? ok !!
-<br><p align="center"> ─── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ───
-
-<p align=center><br>ㅤ۫˚ ༘ ೀ⋆🍪｡˚
-<br>${\textsf{\color{#F05179}(๑ > ᴗ < ๑)°ᡣ𐭩 !!}}$ ${\textsf{\color{#FF94AE}Indie or Ginger}}$ 
-<br>ㅤ۫˚ ༘ ೀ⋆🍪｡˚
-
-<p align=right><br> ${\textsf{\color{#CF2D43}♡⸝　18 / pan , gndrfluid}}$ 　　
-<br> ${\textsf{\color{#DE3C52}   ⠀―⠀　　Astro yume , Ginger irl }}$　<img width="180" height="24" alt="image" src="https://github.com/user-attachments/assets/1c52b1d6-4dd3-49c8-ba84-06a3536f309b" />
-<br> ${\textsf{\color{#ED556A}⠀⠀　⠀✿⠀　Check straw for more / -15 dni　　　　₊　　˙　}}$ 
-  
-
-<br> ${\textsf{\color{#F27486}' ​🇮​​🇸​ ​🇹​​🇭​​🇮​​🇸​ ​🇹​​🇭​​🇪​ ​🇫​​🇪​​🇪​​🇱​​🇮​​🇳​​🇬​ ​🇴​​🇫​ ​🇱​​🇴​​🇻​​🇪​ ​🇹​​🇭​​🇦​​🇹​ ​🇮​ ​🇭​​🇦​​🇻​​🇪​ ​🇴​​🇳​​🇱​​🇾​ ​🇭​​🇪​​🇦​​🇷​​🇩​ ​🇦​​🇧​​🇴​​🇺​​🇹​? '　໒୧}}$　　
-<br> ${\textsf{\color{#A8c9ff}　　　𝄢　🇧​​🇪​​🇨​​🇦​​🇺​​🇸​​🇪​ ​🇲​​🇾​ ​🇭​​🇪​​🇦​​🇷​​🇹​ ​🇧​​🇪​​🇦​​​​🇹​​🇸​ ​🇫​​🇴​​🇷​ ​🇾​​🇴​​🇺​ ​🇫​​🇷​​🇴​​🇲​ ​🇹​​🇭​​🇪​ ​🇧​​🇪​​🇬​​🇮​​🇳​​🇳​​🇮​​🇳​​🇬​. ' ‿ }}$ 　　<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/b72be925-790c-4c4e-9874-b80b327b2101" />
-<img width="723" height="694" alt="image" src="https://github.com/user-attachments/assets/e053d78c-bb7c-4ac3-a38f-d6986c2548d9" /> 
-<br>${\textsf{\color{#F27496}౨ৎ⋆ ˚｡ !!}}$ ${\textsf{\color{#748BF2}me and him canon trust <3}}$ 
 
 
 
