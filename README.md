@@ -19,7 +19,7 @@
 <br><p align="center"> ${\textsf{\color{#F05179}yes im that person who calls out ppl who make ginger white}}$ 
 <br><p align="center"> ${\textsf{\color{#F27486}Yes I am THE Ginger of the spawn dw area , feel free to int ok i promise i dont bite}}$ 
 
-<br><p align="center">${\textsf{\color{#748BF2}I am NOT my friends. Do not group me into drama with them. I block FREELY. Do not come and harass me if i have blocked you, it's for a reason.}}$ ${\textsf{\color{#abffff}And to the person stalking my ATA and insulting me, say it to my FACE.<3}}$
+<br><p align="center">${\textsf{\color{#748BF2}I am NOT my friends. Do not group me into drama with them. I block FREELY. Do not come and harass me if i have blocked you!!}}$ ${\textsf{\color{#abffff}And to the person stalking my ATA and insulting me, say it to my FACE.<3}}$
 
 
 <br><p align="center"> .˚⊹. ࣪𓉸 ࣪⊹˚. check straw + ata .˚⊹. ࣪𓉸 ࣪⊹˚.
