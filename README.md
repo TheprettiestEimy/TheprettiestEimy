@@ -38,7 +38,7 @@
 <img width="735" height="492" alt="image" src="https://github.com/user-attachments/assets/71f803e3-438e-422c-8424-28fcea874433" />
 
 <br><p align="center"> ─── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ───
-THANK U @title-town FOR ADDING ME YAYYY!!!!
+THANK U [@Title-town]([link](https://github.com/title-town)) and [@PTWOF]([link](https://github.com/pt-walk-of-fame)) FOR ADDING ME YAYYY!!!!
 
 <img width="414" height="57" alt="image" src="https://github.com/user-attachments/assets/4ce67cae-a70a-4eb3-93e7-f3171cfc2c8a" /> <-- DATS ME HI !!
 <br><p align="center"> ─── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ────── ⋆⋅𖤐⋅⋆ ───
