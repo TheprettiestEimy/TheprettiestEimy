@@ -46,7 +46,11 @@
 THANK U [@Title-town]([link](https://github.com/title-town)) and [@PTWOF]([link](https://github.com/pt-walk-of-fame)) FOR ADDING ME YAYYY!!!!
 
 <img width="414" height="57" alt="image" src="https://github.com/user-attachments/assets/4ce67cae-a70a-4eb3-93e7-f3171cfc2c8a" /> <-- DATS ME HI !!
+<img width="809" height="50" alt="image" src="https://github.com/user-attachments/assets/d821db7c-1548-43dd-be7c-0395479f511a" /> <img width="372" height="41" alt="image" src="https://github.com/user-attachments/assets/f7769433-a4ec-4431-8458-53ac9d60bd74" />
+
+
 <br><p align="center"> <img width="2048" height="123" alt="image" src="https://github.com/user-attachments/assets/ae12e669-64b2-47dd-8f8c-1931f678b183" />
+
 
 
 
