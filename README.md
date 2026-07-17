@@ -1,3 +1,5 @@
+<br><p align="center">![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fsw33tsug4rcookie&label=%20%E0%B1%A8%E0%A7%8E%E2%8B%86%20%CB%9A%EF%BD%A1%20%F0%9D%92%AEprinkles..&labelColor=%23c8d9f0&countColor=%232ccce4&style=flat-square)
+
 <br><p align="center"><img width="2048" height="123" alt="image" src="https://github.com/user-attachments/assets/8b623680-a6eb-4fa7-a3d4-46849c265b66" />
 <br><p align="center"><br>${\textsf{\color{#F27486}Indie}}$ ${\textsf{\color{#F05179}or}}$ ${\textsf{\color{#FF94AE}Ginger .}}$
 <br><p align="center"><br>${\textsf{\color{#748BF2}Eighteen, }}$ ${\textsf{\color{#abffff}Pansexual, }}$ ${\textsf{\color{#A8c9ff} Genderfluid !}}$
