@@ -4,9 +4,9 @@
 <br><p align="center">[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Edu+VIC+WA+NT+Hand&weight=500&pause=1000&color=F79DCB&background=FF89DD00&center=true&vCenter=true&width=435&lines=Did+I+smudge+my+icing+makeup...%3F;Do+I+smell+a+scent+of+cinnamon%3F+Or+is+it+just+me%3F;I+hope+I'll+have+time+to+bake+after+this...;Ding!+Finished+to+perfection...!)](https://git.io/typing-svg)
 <br><p align="center"><img width="240" height="34" alt="image" src="https://github.com/user-attachments/assets/a7ba00ad-f762-4601-b703-88b2b7e7cca4" /><img width="240" height="34" alt="image" src="https://github.com/user-attachments/assets/2d645a8c-2467-49cd-869b-458c072a7e21" /><img width="240" height="34" alt="image" src="https://github.com/user-attachments/assets/35d3bb86-e529-4f33-aa46-f05ee5ebe63f" />
 <img width="240" height="34" alt="image" src="https://github.com/user-attachments/assets/c449fa18-19d7-495a-80b5-03e980b4f724" />
-<br><p align="center"><br>${\textsf{\color{#FDF4F5}Indie}}$ ${\textsf{\color{#E8A0BF}or}}$ ${\textsf{\color{#BA90C6}Ginger .}}$
-<br><p align="center"><br>${\textsf{\color{#F8BFE2}Eighteen, }}$ ${\textsf{\color{#E5BFF8}Pansexual, }}$ ${\textsf{\color{#BFC6F8} Genderfluid !}}$
-<br><p align="center"><br>${\textsf{\color{#F05179}Ginger irl}}$ ${\textsf{\color{#FF94AE}/Fictkin}}$ 
+<br><p align="center"><br>${\textsf{\color{#FDF4F5}Indie}}$ ${\textsf{\color{#E8A0BF}or}}$ ${\textsf{\color{#BA90C6}Ginger .}}$ <img width="28" height="25" alt="cake04" src="https://github.com/user-attachments/assets/365c1606-ef2a-4bb1-89c4-aca97a9ff470" /> 
+<br><p align="center"><br>${\textsf{\color{#F8BFE2}Eighteen, }}$ ${\textsf{\color{#E5BFF8}Pansexual, }}$ ${\textsf{\color{#BFC6F8} Genderfluid !}}$ <img width="28" height="24" alt="image" src="https://github.com/user-attachments/assets/ed735b0d-22b8-44d0-aae1-d7e3457de195" />
+<br><p align="center"><br>${\textsf{\color{#F8B0CE}Ginger irl}}$ ${\textsf{\color{#F98BB9}/Fictkin}}$ 
 <br>
 <br><p align="center">${\textsf{\color{#748BF2}Astro yume . }}$ ${\textsf{\color{#abffff}Dbls iwc ,<3}}$ <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/35debc21-e34f-47c4-9782-6b85c1270781" />
 
