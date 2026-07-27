@@ -1,5 +1,4 @@
-<br><p align="center"> REMAKING AGAIN ! ! ! ! ! stay tunedd...
-<br><p align="center"> Next theme: Sugar Cookie ! ! !
+
 <br><p align="center">![visitors](https://visitor-badge.laobi.icu/badge?page_id=sw33tsug4rcookie&left_text=Sugar%20Cookies&left_color=%23edb6de&right_color=%23c41259&format=true)
 <br><p align="center">[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Edu+VIC+WA+NT+Hand&weight=500&pause=1000&color=F79DCB&background=FF89DD00&center=true&vCenter=true&width=435&lines=Did+I+smudge+my+icing+makeup...%3F;Do+I+smell+a+scent+of+cinnamon%3F+Or+is+it+just+me%3F;I+hope+I'll+have+time+to+bake+after+this...;Ding!+Finished+to+perfection...!)](https://git.io/typing-svg)
 <br><p align="center"><img width="240" height="34" alt="image" src="https://github.com/user-attachments/assets/a7ba00ad-f762-4601-b703-88b2b7e7cca4" /><img width="240" height="34" alt="image" src="https://github.com/user-attachments/assets/2d645a8c-2467-49cd-869b-458c072a7e21" /><img width="240" height="34" alt="image" src="https://github.com/user-attachments/assets/c449fa18-19d7-495a-80b5-03e980b4f724" />
