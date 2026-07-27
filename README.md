@@ -26,19 +26,18 @@
 
 <br><p align="center"> <img width="230" height="30" alt="tumblr_4788806bc4635bbe882a4c6ae9f12f96_38fb6715_250" src="https://github.com/user-attachments/assets/c6122020-a510-43d3-b2a2-b55727e0e94b" /><img width="230" height="30" alt="tumblr_4788806bc4635bbe882a4c6ae9f12f96_38fb6715_250" src="https://github.com/user-attachments/assets/46ccf185-6146-4e64-a75e-594097f0a686" /><img width="230" height="30" alt="tumblr_4788806bc4635bbe882a4c6ae9f12f96_38fb6715_250" src="https://github.com/user-attachments/assets/31493fe3-a6b3-4329-b234-f90c869421ba" />
 
-<br><p align="center">${\textsf{\color{#FF94AE}Yes im that person with the 100+ Ginger skins.}}$ 
-<br><p align="center"> ${\textsf{\color{#F05179}yes im that person who calls out ppl who make ginger white}}$ 
-<br><p align="center"> ${\textsf{\color{#F27486}Yes I am THE Ginger of the spawn dw area , feel free to int ok i promise i dont bite}}$ 
+<br><p align="center">${\textsf{\color{#F0A3C0}Yes, I do have 110+ Ginger skins !! No, I don't mind if you ask abt em!!}}$ 
+<br><p align="center"> ${\textsf{\color{#EE86B8}If you defend poeple making ginger white, dni !! Because if you try to defend it to me, I WILL not be nice ! }}$ 
+<br><p align="center"> ${\textsf{\color{#EF76B0}Yes I am THE Ginger of Ponytown, please int with me I dont bite }}$ 
 
-<br><p align="center">${\textsf{\color{#748BF2}I am NOT my friends. Do not group me into drama with them. I block FREELY. Do not come and harass me if i have blocked you!!}}$ ${\textsf{\color{#abffff}And to the person stalking my ATA and insulting me, say it to my FACE.<3}}$
+<br><p align="center">${\textsf{\color{#76AAEF}I am NOT my friends. Do not group me into drama with them. I block FREELY. Do not come and harass me if i have blocked you!!}}$ ${\textsf{\color{#76AAEF}And to the person stalking my ATA and insulting me, say it to my FACE.<3}}$
 
 
-<br><p align="center"> .˚⊹. ࣪𓉸 ࣪⊹˚. check straw + ata .˚⊹. ࣪𓉸 ࣪⊹˚.
-<br><p align="center"> If someone i interact with is problematic , pls tell me sobs
-
+<br><p align="center"> ${\textsf{\color{#EF76B0}.˚⊹. ࣪𓉸 ࣪⊹˚. check straw + ata .˚⊹. ࣪𓉸 ࣪⊹˚.}}$
+<br><p align="center"> ${\textsf{\color{#EF76B0}If someone I interact with is problematic, let me know !!}}$ .˚⊹. ࣪𓉸 ࣪⊹˚. check straw + ata .˚⊹. ࣪𓉸 ࣪⊹˚.
 <br><p align="center"> <img width="2048" height="123" alt="image" src="https://github.com/user-attachments/assets/38761f57-a8cd-478a-bcfc-25f877b8be12" />
 
-<br> ${\textsf{\color{#A8c9ff} Stamps ok?}}$ 
+<br> ${\textsf{\color{#76AAEF} Stamps ok?}}$ 
 
 <img width="86" height="18" alt="image" src="https://github.com/user-attachments/assets/7e660c9b-f0b9-48b0-b16d-65757ae6a77d" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/c05c74fb-0bf9-4da9-b001-3fae49754782" />
@@ -50,15 +49,20 @@
 <img width="150" height="20" alt="tumblr_9fbb997bb8513dae8949c6e3bcaa65db_54a573c6_250" src="https://github.com/user-attachments/assets/35346244-9abf-4077-a2fc-b225373b3a2b" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/e47e5de4-1dd1-431f-8bc0-d35a3d0fac4a" /><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/0a867b6c-d34f-4925-8bed-b32b88d35f05" /><img width="99" height="55" alt="image" src="https://github.com/user-attachments/assets/5ad36708-535e-40a2-ab73-f1c9202a94c6" /><img width="99" height="57" alt="image" src="https://github.com/user-attachments/assets/57977f50-0628-44ac-971a-07bad028a964" /><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/55119d9f-610f-4662-af5b-a6dafe48260f" /><img width="150" height="40" alt="image" src="https://github.com/user-attachments/assets/f3ed82c6-81f6-46c5-97fe-063f616948c8" />
 
 
-<br><p align="center"><img width="2048" height="123" alt="image" src="https://github.com/user-attachments/assets/6069ca5d-1225-4959-9dab-1b7e119821f3" />
+<br><p align="center"><img width="184" height="25" alt="tumblr_cc0f98b6d847f3ccb11d5ca97830074e_446ea653_250" src="https://github.com/user-attachments/assets/2f269d23-c446-4df9-8554-e7fa87836e3d" />
+<img width="184" height="25" alt="tumblr_cc0f98b6d847f3ccb11d5ca97830074e_446ea653_250" src="https://github.com/user-attachments/assets/2f269d23-c446-4df9-8554-e7fa87836e3d" />
+<img width="184" height="25" alt="tumblr_cc0f98b6d847f3ccb11d5ca97830074e_446ea653_250" src="https://github.com/user-attachments/assets/2f269d23-c446-4df9-8554-e7fa87836e3d" />
 
-THANK U [@Title-town]([link](https://github.com/title-town)) and [@PTWOF]([link](https://github.com/pt-walk-of-fame)) FOR ADDING ME YAYYY!!!!
+
+THANK U ![@Title-town]([link](https://github.com/title-town)) and ![@PTWOF]([link](https://github.com/pt-walk-of-fame)) FOR ADDING ME YAYYY!!!!
 
 <img width="414" height="57" alt="image" src="https://github.com/user-attachments/assets/4ce67cae-a70a-4eb3-93e7-f3171cfc2c8a" /> <-- DATS ME HI !!
 <img width="809" height="50" alt="image" src="https://github.com/user-attachments/assets/d821db7c-1548-43dd-be7c-0395479f511a" /> <img width="372" height="41" alt="image" src="https://github.com/user-attachments/assets/f7769433-a4ec-4431-8458-53ac9d60bd74" />
 
 
-<br><p align="center"> <img width="2048" height="123" alt="image" src="https://github.com/user-attachments/assets/ae12e669-64b2-47dd-8f8c-1931f678b183" />
+<br><p align="center"> <img width="184" height="25" alt="tumblr_cc0f98b6d847f3ccb11d5ca97830074e_446ea653_250" src="https://github.com/user-attachments/assets/2f269d23-c446-4df9-8554-e7fa87836e3d" />
+<img width="184" height="25" alt="tumblr_cc0f98b6d847f3ccb11d5ca97830074e_446ea653_250" src="https://github.com/user-attachments/assets/2f269d23-c446-4df9-8554-e7fa87836e3d" />
+<img width="184" height="25" alt="tumblr_cc0f98b6d847f3ccb11d5ca97830074e_446ea653_250" src="https://github.com/user-attachments/assets/2f269d23-c446-4df9-8554-e7fa87836e3d" />
 
 
 
