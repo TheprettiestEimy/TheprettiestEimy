@@ -10,6 +10,9 @@
 
 <br>
 <br><p align="center">${\textsf{\color{#748BF2}Astro yume . }}$ ${\textsf{\color{#abffff}Dbls iwc ,<3}}$ <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/35debc21-e34f-47c4-9782-6b85c1270781" />
+<br><p align="center"><img width="222" height="38" alt="image" src="https://github.com/user-attachments/assets/61b0b6b4-4252-49a7-868c-2d232e7d0ff6" />
+<img width="222" height="38" alt="image" src="https://github.com/user-attachments/assets/0f28eec6-fc67-4ad7-815b-4215e6f75efd" />
+<img width="222" height="38" alt="image" src="https://github.com/user-attachments/assets/cbf9b6e1-131c-48be-a503-8f4c006e60f5" />
 
 <br> ${\textsf{\color{#ED556A}⠀⠀　⠀✿⠀　Check straw for more / -15 dni　　　　₊　　˙　}}$ 
 
