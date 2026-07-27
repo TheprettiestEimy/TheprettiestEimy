@@ -24,7 +24,7 @@
 <br><p align="right"><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/b26b6f83-2b9a-44bc-8375-09ddf3a0cde2" />
 <br> ${\textsf{\color{#7B9FF4}　　　𝄢　🇧​​🇪​​🇨​​🇦​​🇺​​🇸​​🇪​ ​🇲​​🇾​ ​🇭​​🇪​​🇦​​🇷​​🇹​ ​🇧​​🇪​​🇦​​​​🇹​​🇸​ ​🇫​​🇴​​🇷​ ​🇾​​🇴​​🇺​ ​🇫​​🇷​​🇴​​🇲​ ​🇹​​🇭​​🇪​ ​🇧​​🇪​​🇬​​🇮​​🇳​​🇳​​🇮​​🇳​​🇬​. ' ‿ }}$ <img width="20" height="20" alt="tumblr_inline_mij529baAz1qz4rgp540" src="https://github.com/user-attachments/assets/5552f773-707f-4c2b-ad62-c3cda6cd8c08" />
 
-<br><p align="center"> <img width="2048" height="123" alt="image" src="https://github.com/user-attachments/assets/43127802-b059-468d-b8db-0486b7031b92" />
+<br><p align="center"> <img width="230" height="30" alt="tumblr_4788806bc4635bbe882a4c6ae9f12f96_38fb6715_250" src="https://github.com/user-attachments/assets/c6122020-a510-43d3-b2a2-b55727e0e94b" /><img width="230" height="30" alt="tumblr_4788806bc4635bbe882a4c6ae9f12f96_38fb6715_250" src="https://github.com/user-attachments/assets/46ccf185-6146-4e64-a75e-594097f0a686" /><img width="230" height="30" alt="tumblr_4788806bc4635bbe882a4c6ae9f12f96_38fb6715_250" src="https://github.com/user-attachments/assets/31493fe3-a6b3-4329-b234-f90c869421ba" />
 
 <br><p align="center">${\textsf{\color{#FF94AE}Yes im that person with the 100+ Ginger skins.}}$ 
 <br><p align="center"> ${\textsf{\color{#F05179}yes im that person who calls out ppl who make ginger white}}$ 
