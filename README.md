@@ -5,7 +5,7 @@
 <br><p align="center"><img width="240" height="34" alt="image" src="https://github.com/user-attachments/assets/a7ba00ad-f762-4601-b703-88b2b7e7cca4" /><img width="240" height="34" alt="image" src="https://github.com/user-attachments/assets/2d645a8c-2467-49cd-869b-458c072a7e21" /><img width="240" height="34" alt="image" src="https://github.com/user-attachments/assets/35d3bb86-e529-4f33-aa46-f05ee5ebe63f" />
 <img width="240" height="34" alt="image" src="https://github.com/user-attachments/assets/c449fa18-19d7-495a-80b5-03e980b4f724" />
 <br><p align="center"><br>${\textsf{\color{#FDF4F5}Indie}}$ ${\textsf{\color{#E8A0BF}or}}$ ${\textsf{\color{#BA90C6}Ginger .}}$
-<br><p align="center"><br>${\textsf{\color{#748BF2}Eighteen, }}$ ${\textsf{\color{#abffff}Pansexual, }}$ ${\textsf{\color{#A8c9ff} Genderfluid !}}$
+<br><p align="center"><br>${\textsf{\color{#F8BFE2}Eighteen, }}$ ${\textsf{\color{#E5BFF8}Pansexual, }}$ ${\textsf{\color{#BFC6F8} Genderfluid !}}$
 <br><p align="center"><br>${\textsf{\color{#F05179}Ginger irl}}$ ${\textsf{\color{#FF94AE}/Fictkin}}$ 
 <br>
 <br><p align="center">${\textsf{\color{#748BF2}Astro yume . }}$ ${\textsf{\color{#abffff}Dbls iwc ,<3}}$ <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/35debc21-e34f-47c4-9782-6b85c1270781" />
