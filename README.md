@@ -15,13 +15,14 @@
 <img width="222" height="38" alt="image" src="https://github.com/user-attachments/assets/0f28eec6-fc67-4ad7-815b-4215e6f75efd" />
 <img width="222" height="38" alt="image" src="https://github.com/user-attachments/assets/cbf9b6e1-131c-48be-a503-8f4c006e60f5" />
 
-<br> ${\textsf{\color{#ED556A}⠀⠀　⠀✿⠀　Check straw for more / -15 dni　　　　₊　　˙　}}$ 
+<br> ${\textsf{\color{#ED96B2}⠀⠀　⠀✿⠀　Check straw for more / -15 dni　　　　₊　　˙　}}$ 
 
 <br><p align="left"><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/3208426c-c3bb-445d-96b2-8ff275a0ef95" />
-<br> ${\textsf{\color{#F27486}' ​🇮​​🇸​ ​🇹​​🇭​​🇮​​🇸​ ​🇹​​🇭​​🇪​ ​🇫​​🇪​​🇪​​🇱​​🇮​​🇳​​🇬​ ​🇴​​🇫​ ​🇱​​🇴​​🇻​​🇪​ ​🇹​​🇭​​🇦​​🇹​ ​🇮​ ​🇭​​🇦​​🇻​​🇪​ ​🇴​​🇳​​🇱​​🇾​ ​🇭​​🇪​​🇦​​🇷​​🇩​ ​🇦​​🇧​​🇴​​🇺​​🇹​? '　໒୧}}$　　
-<br><p align="right"><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/b26b6f83-2b9a-44bc-8375-09ddf3a0cde2" />
-<br> ${\textsf{\color{#A8c9ff}　　　𝄢　🇧​​🇪​​🇨​​🇦​​🇺​​🇸​​🇪​ ​🇲​​🇾​ ​🇭​​🇪​​🇦​​🇷​​🇹​ ​🇧​​🇪​​🇦​​​​🇹​​🇸​ ​🇫​​🇴​​🇷​ ​🇾​​🇴​​🇺​ ​🇫​​🇷​​🇴​​🇲​ ​🇹​​🇭​​🇪​ ​🇧​​🇪​​🇬​​🇮​​🇳​​🇳​​🇮​​🇳​​🇬​. ' ‿ }}$ 
+<br> ${\textsf{\color{#F47BA1}' ​🇮​​🇸​ ​🇹​​🇭​​🇮​​🇸​ ​🇹​​🇭​​🇪​ ​🇫​​🇪​​🇪​​🇱​​🇮​​🇳​​🇬​ ​🇴​​🇫​ ​🇱​​🇴​​🇻​​🇪​ ​🇹​​🇭​​🇦​​🇹​ ​🇮​ ​🇭​​🇦​​🇻​​🇪​ ​🇴​​🇳​​🇱​​🇾​ ​🇭​​🇪​​🇦​​🇷​​🇩​ ​🇦​​🇧​​🇴​​🇺​​🇹​? '　໒୧}}$　<img width="20" height="20" alt="tumblr_inline_mij529baAz1qz4rgp540" src="https://github.com/user-attachments/assets/6aa9f57c-cfcc-40f4-87f1-1f1dfbc914da" />
 
+
+<br><p align="right"><img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/b26b6f83-2b9a-44bc-8375-09ddf3a0cde2" />
+<br> ${\textsf{\color{#7B9FF4}　　　𝄢　🇧​​🇪​​🇨​​🇦​​🇺​​🇸​​🇪​ ​🇲​​🇾​ ​🇭​​🇪​​🇦​​🇷​​🇹​ ​🇧​​🇪​​🇦​​​​🇹​​🇸​ ​🇫​​🇴​​🇷​ ​🇾​​🇴​​🇺​ ​🇫​​🇷​​🇴​​🇲​ ​🇹​​🇭​​🇪​ ​🇧​​🇪​​🇬​​🇮​​🇳​​🇳​​🇮​​🇳​​🇬​. ' ‿ }}$ <img width="20" height="20" alt="tumblr_inline_mij529baAz1qz4rgp540" src="https://github.com/user-attachments/assets/5552f773-707f-4c2b-ad62-c3cda6cd8c08" />
 
 <br><p align="center"> <img width="2048" height="123" alt="image" src="https://github.com/user-attachments/assets/43127802-b059-468d-b8db-0486b7031b92" />
 
