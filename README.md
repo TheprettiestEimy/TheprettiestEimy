@@ -34,8 +34,10 @@
 
 
 <br><p align="center"> ${\textsf{\color{#EF76B0}.˚⊹. ࣪𓉸 ࣪⊹˚. check straw + ata .˚⊹. ࣪𓉸 ࣪⊹˚.}}$
-<br><p align="center"> ${\textsf{\color{#EF76B0}If someone I interact with is problematic, let me know !!}}$ .˚⊹. ࣪𓉸 ࣪⊹˚. check straw + ata .˚⊹. ࣪𓉸 ࣪⊹˚.
-<br><p align="center"> <img width="2048" height="123" alt="image" src="https://github.com/user-attachments/assets/38761f57-a8cd-478a-bcfc-25f877b8be12" />
+<br><p align="center"> ${\textsf{\color{#EF76B0}If someone I interact with is problematic, let me know !!}}$ 
+<br><p align="center"> <img width="184" height="25" alt="tumblr_cc0f98b6d847f3ccb11d5ca97830074e_446ea653_250" src="https://github.com/user-attachments/assets/2f269d23-c446-4df9-8554-e7fa87836e3d" />
+<img width="184" height="25" alt="tumblr_cc0f98b6d847f3ccb11d5ca97830074e_446ea653_250" src="https://github.com/user-attachments/assets/2f269d23-c446-4df9-8554-e7fa87836e3d" />
+<img width="184" height="25" alt="tumblr_cc0f98b6d847f3ccb11d5ca97830074e_446ea653_250" src="https://github.com/user-attachments/assets/2f269d23-c446-4df9-8554-e7fa87836e3d" />
 
 <br> ${\textsf{\color{#76AAEF} Stamps ok?}}$ 
 
