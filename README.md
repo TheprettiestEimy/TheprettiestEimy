@@ -55,7 +55,7 @@
 <img width="184" height="25" alt="tumblr_cc0f98b6d847f3ccb11d5ca97830074e_446ea653_250" src="https://github.com/user-attachments/assets/2f269d23-c446-4df9-8554-e7fa87836e3d" />
 
 
-THANK U ![@Title-town]([link](https://github.com/title-town)) and ![@PTWOF]([link](https://github.com/pt-walk-of-fame)) FOR ADDING ME YAYYY!!!!
+THANK U [@Title-town]([link](https://github.com/title-town)) and [@PTWOF]([link](https://github.com/pt-walk-of-fame)) FOR ADDING ME YAYYY!!!!
 
 <img width="414" height="57" alt="image" src="https://github.com/user-attachments/assets/4ce67cae-a70a-4eb3-93e7-f3171cfc2c8a" /> <-- DATS ME HI !!
 <img width="809" height="50" alt="image" src="https://github.com/user-attachments/assets/d821db7c-1548-43dd-be7c-0395479f511a" /> <img width="372" height="41" alt="image" src="https://github.com/user-attachments/assets/f7769433-a4ec-4431-8458-53ac9d60bd74" />
