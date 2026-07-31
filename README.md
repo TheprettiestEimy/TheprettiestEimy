@@ -26,7 +26,7 @@
 
 
 <br><p align="center">${\textsf{\color{#69d9fe}Yes, I do have 110+ Ginger skins !! No, I don't mind if you ask abt em!!}}$ 
-<br><p align="center"> ${\textsf{\color{#69cdff}If you defend poeple making ginger white, dni !! Because if you try to defend it to me, I WILL not be nice ! }}$ 
+<br><p align="center"> ${\textsf{\color{#69cdff}If you defend people making ginger white, dni !! Because if you try to defend it to me, I WILL not be nice ! }}$ 
 <br><p align="center"> ${\textsf{\color{#6fc1ff}Yes I am THE Ginger of Ponytown, please int with me I dont bite }}$ 
 
 <br><p align="center">${\textsf{\color{#79b3ff}I am NOT my friends. Do not group me into drama with them. I block FREELY. Do not come and harass me if i have blocked you!!}}$ ${\textsf{\color{#76AAEF}And to the person stalking my ATA and insulting me, say it to my FACE.<3}}$
