@@ -7,8 +7,6 @@
 <br><p align="center"><br>${\textsf{\color{#979bf9}Eighteen, }}$ ${\textsf{\color{#8fa3fc}Pansexual, }}$ ${\textsf{\color{#87aafe} Genderfluid !}}$ <img width="28"  src="https://github.com/user-attachments/assets/ed735b0d-22b8-44d0-aae1-d7e3457de195" />
 <br><p align="center"><br>${\textsf{\color{#7ab8fe}Ginger irl}}$ ${\textsf{\color{#74bffc}/Fictkin}}$
 <br><p align="center"><img width="736"  src="https://github.com/user-attachments/assets/832e0edd-b35e-4e9b-b858-d88422e7ab2a" />
-
-<br>
 <br><p align="center">${\textsf{\color{#AAD4F9}Astro yume . }}$ <img width="20"  src="https://github.com/user-attachments/assets/bdb5bc9b-9765-4153-9781-4ecd9fc50305" />
  ${\textsf{\color{#58AEF9}Dbls iwc ,<3}}$ <img width="99"  src="https://github.com/user-attachments/assets/35debc21-e34f-47c4-9782-6b85c1270781" />
 <br><p align="center"><img width="2048"  src="https://github.com/user-attachments/assets/ed1f36a0-c8fc-46af-b3e3-f2de4d077c88" />
