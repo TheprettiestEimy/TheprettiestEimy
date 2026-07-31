@@ -1,11 +1,11 @@
 
-<br><p align="center">![visitors](https://visitor-badge.laobi.icu/badge?page_id=sw33tsug4rcookie&left_text=Sugar%20Cookies&left_color=%23edb6de&right_color=%23c41259&format=true)
-<br><p align="center">[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Edu+VIC+WA+NT+Hand&weight=500&pause=1000&color=F79DCB&background=FF89DD00&center=true&vCenter=true&width=435&lines=Did+I+smudge+my+icing+makeup...%3F;Do+I+smell+a+scent+of+cinnamon%3F+Or+is+it+just+me%3F;I+hope+I'll+have+time+to+bake+after+this...;Ding!+Finished+to+perfection...!)](https://git.io/typing-svg)
+<br><p align="center">![visitors](https://visitor-badge.laobi.icu/badge?page_id=sw33tsug4rcookie&left_text=Snowflakes..&left_color=%2398c0ec&right_color=%23c997f2)
+<br><p align="center">[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Edu+VIC+WA+NT+Hand&weight=500&pause=1000&color=9E73F7&background=FF89DD00&center=true&vCenter=true&width=435&lines=Did+I+smudge+my+icing+makeup...%3F;Do+I+smell+a+scent+of+cinnamon%3F+Or+is+it+just+me%3F;I+hope+I'll+have+time+to+bake+after+this...;Ding!+Finished+to+perfection...!)](https://git.io/typing-svg)
 <br><p align="center"><img width="240"  src="https://github.com/user-attachments/assets/a7ba00ad-f762-4601-b703-88b2b7e7cca4" /><img width="240"  src="https://github.com/user-attachments/assets/2d645a8c-2467-49cd-869b-458c072a7e21" /><img width="240"  src="https://github.com/user-attachments/assets/c449fa18-19d7-495a-80b5-03e980b4f724" />
-<br><p align="center"><br>${\textsf{\color{#FDF4F5}Indie}}$ ${\textsf{\color{#E8A0BF}or}}$ ${\textsf{\color{#BA90C6}Ginger .}}$ <img width="28"  src="https://github.com/user-attachments/assets/365c1606-ef2a-4bb1-89c4-aca97a9ff470" /> 
-<br><p align="center"><br>${\textsf{\color{#F8BFE2}Eighteen, }}$ ${\textsf{\color{#E5BFF8}Pansexual, }}$ ${\textsf{\color{#BFC6F8} Genderfluid !}}$ <img width="28"  src="https://github.com/user-attachments/assets/ed735b0d-22b8-44d0-aae1-d7e3457de195" />
-<br><p align="center"><br>${\textsf{\color{#F8B0CE}Ginger irl}}$ ${\textsf{\color{#F98BB9}/Fictkin}}$
-<br><p align="center"><img width="735"  src="https://github.com/user-attachments/assets/0ba8d6fe-4c53-466f-872f-fa58122104fc" />
+<br><p align="center"><br>${\textsf{\color{#ad84e7}Indie}}$ ${\textsf{\color{#a68cee}or}}$ ${\textsf{\color{#9f93f4}Ginger .}}$ <img width="28"  src="https://github.com/user-attachments/assets/365c1606-ef2a-4bb1-89c4-aca97a9ff470" /> 
+<br><p align="center"><br>${\textsf{\color{#979bf9}Eighteen, }}$ ${\textsf{\color{#8fa3fc}Pansexual, }}$ ${\textsf{\color{#87aafe} Genderfluid !}}$ <img width="28"  src="https://github.com/user-attachments/assets/ed735b0d-22b8-44d0-aae1-d7e3457de195" />
+<br><p align="center"><br>${\textsf{\color{#7ab8fe}Ginger irl}}$ ${\textsf{\color{#74bffc}/Fictkin}}$
+<br><p align="center"><img width="736"  src="https://github.com/user-attachments/assets/832e0edd-b35e-4e9b-b858-d88422e7ab2a" />
 
 <br>
 <br><p align="center">${\textsf{\color{#AAD4F9}Astro yume . }}$ <img width="20"  src="https://github.com/user-attachments/assets/bdb5bc9b-9765-4153-9781-4ecd9fc50305" />
