@@ -23,7 +23,7 @@
 <br><p align="center"> <img width="2048"  src="https://github.com/user-attachments/assets/5aed54a5-42a3-4c9d-a016-30f985be6eff" />
 
 
-<br><p align="center">${\textsf{\color{#69d9fe}Yes, I do have 110+ Ginger skins !! No, I don't mind if you ask abt em!!}}$ 
+<br><p align="center">${\textsf{\color{#69d9fe}Yes, I do have 120+ Ginger skins !! No, I don't mind if you ask abt em!!}}$ 
 <br><p align="center"> ${\textsf{\color{#69cdff}If you defend people making ginger white, dni !! Because if you try to defend it to me, I WILL not be nice ! }}$ 
 <br><p align="center"> ${\textsf{\color{#6fc1ff}Yes I am THE Ginger of Ponytown, please int with me I dont bite }}$ 
 
