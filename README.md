@@ -52,10 +52,18 @@
 <img width="184" height="25"  src="https://github.com/user-attachments/assets/2f269d23-c446-4df9-8554-e7fa87836e3d" />
 
 
-THANK U [@Title-town]([link](https://github.com/title-town)) and [@PTWOF]([link](https://github.com/pt-walk-of-fame)) FOR ADDING ME YAYYY!!!!
+All of my pt awards / nominations ! ty to you all for nominating and adding me!!
 
-<img width="414" height="57" alt="image" src="https://github.com/user-attachments/assets/4ce67cae-a70a-4eb3-93e7-f3171cfc2c8a" /> <-- DATS ME HI !!
-<img width="809" height="50" alt="image" src="https://github.com/user-attachments/assets/d821db7c-1548-43dd-be7c-0395479f511a" /> <img width="372" height="41" alt="image" src="https://github.com/user-attachments/assets/f7769433-a4ec-4431-8458-53ac9d60bd74" />
+<img width="414" src="https://github.com/user-attachments/assets/4ce67cae-a70a-4eb3-93e7-f3171cfc2c8a" /> 
+<img width="809"  src="https://github.com/user-attachments/assets/d821db7c-1548-43dd-be7c-0395479f511a" /> <img width="372" height="41" alt="image" src="https://github.com/user-attachments/assets/f7769433-a4ec-4431-8458-53ac9d60bd74" /><img width="354" height="33" alt="image" src="https://github.com/user-attachments/assets/93106f88-aa29-4039-8291-90c60c79ad61" />
+<img width="456" height="43" alt="image" src="https://github.com/user-attachments/assets/800ac96d-6903-4feb-b7e8-71363d39647d" />
+<img width="363" height="31" alt="image" src="https://github.com/user-attachments/assets/967d91bb-c9f6-4d3d-9654-f19ba2d28719" />
+<img width="444" height="41" alt="image" src="https://github.com/user-attachments/assets/0970e140-e207-471f-a85a-1edb099f5aaa" />
+<img width="351" height="32" alt="image" src="https://github.com/user-attachments/assets/961f7e18-2726-4026-b8b9-358706694667" />
+<img width="818" height="52" alt="image" src="https://github.com/user-attachments/assets/edcaeb99-416f-4243-83a0-654497a946bf" />
+<img width="404" height="36" alt="image" src="https://github.com/user-attachments/assets/e7013772-77c4-487f-9e1e-8777b4f6bdaa" />
+<img width="390" height="31" alt="image" src="https://github.com/user-attachments/assets/2436cfd6-59c2-4cf0-821c-701fcd03ce4f" />
+
 
 
 <br><p align="center"> <img width="2048" src="https://github.com/user-attachments/assets/7c19b868-9a97-45d8-8d62-fa28eebeec30" />
