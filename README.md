@@ -1,4 +1,6 @@
-
+<br><p align="center"><br>${\textsf{\color{#ff0000}PSA; Do NOT harass anyone on my behalf?? If you see someone copying my skins , or mocking me in general, either whisper me about it}}$
+<br><p align="center"><br>${\textsf{\color{#ff0000}or send me a message on my ata, do not harass people on my behalf, that makes the situation worse. Ty !!}}$
+# 
 <br><p align="center">![visitors](https://visitor-badge.laobi.icu/badge?page_id=sw33tsug4rcookie&left_text=Snowflakes..&left_color=%2398c0ec&right_color=%23c997f2)
 <br><p align="center">[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Edu+VIC+WA+NT+Hand&weight=500&pause=1000&color=9E73F7&background=FF89DD00&center=true&vCenter=true&width=435&lines=Did+I+smudge+my+icing+makeup...%3F;Do+I+smell+a+scent+of+cinnamon%3F+Or+is+it+just+me%3F;I+hope+I'll+have+time+to+bake+after+this...;Ding!+Finished+to+perfection...!)](https://git.io/typing-svg)
 <br><p align="center"><img width="2048" src="https://github.com/user-attachments/assets/7c19b868-9a97-45d8-8d62-fa28eebeec30" />
