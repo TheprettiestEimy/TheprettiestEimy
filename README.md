@@ -11,7 +11,7 @@
 <br><p align="center"><br>${\textsf{\color{#fbc8d6}𝐸𝒾𝑔𝒽𝓉𝑒𝑒𝓃, }}$ 
 ${\textsf{\color{#f5abbf} 𝓠𝓾𝓮𝓼𝓽𝓲𝓸𝓷𝓲𝓷𝓰 𝓛𝓲𝓽𝓱𝓻𝓸𝓶𝓪𝓽𝓲𝓬 / 𝓞𝓶𝓷𝓲𝓼𝓮𝔁𝓾𝓪𝓵 + 𝓑𝓲𝓰𝓮𝓷𝓭𝓮𝓻
 }}$
-<br><p align="center"><br>${\textsf{\color{#7ab8fe}Ginger irl}}$ ${\textsf{\color{#74bffc}/Fictkin}}$
+<br><p align="center"><br>${\textsf{\color{#9CE8AB}𝒢𝒾𝓃𝑔𝑒𝓇 𝒻𝒾𝒸𝓉𝓀𝒾𝓃}}$ ${\textsf{\color{#9CE8AB}/𝐼𝓇𝓁}}$
 <br><p align="center"><img width="735"  src="https://github.com/user-attachments/assets/7f9f1b6d-9ed9-4d64-998e-adacd29286db" />
 <br><p align="center">${\textsf{\color{#f778e6} Me + her , , <3 (art not mine)}}$
 <br><p align="center">${\textsf{\color{#AAD4F9}Astro yume . }}$ <img width="20"  src="https://github.com/user-attachments/assets/bdb5bc9b-9765-4153-9781-4ecd9fc50305" />
