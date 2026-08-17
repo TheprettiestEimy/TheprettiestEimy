@@ -1,7 +1,7 @@
 <br><p align="center"> # WIP ATM
 
 <br><p align="center"><br>${\textsf{\color{#ff0000}PSA; Do NOT harass anyone on my behalf?? If you see someone copying my skins , or mocking me in general, either whisper me about it}}$
-<br><p align="center"><br>${\textsf{\color{#ff0000}or send me a message on my ata, do not harass people on my behalf, that makes the situation worse. Ty !!}}$
+<br><p align="center"><br>${\textsf{\color{#ff0000}or send me a message on my ata, donot harass people on my behalf, that makes the situation worse. Ty !!}}$
 # 
 <br><p align="center">![visitors](https://visitor-badge.laobi.icu/badge?page_id=sw33tsug4rcookie&left_text=Sprinkles&left_color=%23f9b9e5&right_color=%23b3ea9e)
 <br><p align="center">[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Edu+VIC+WA+NT+Hand&weight=500&pause=1000&color=CEFFD7&background=FF89DD00&center=true&vCenter=true&width=435&lines=Did+I+smudge+my+icing+makeup...%3F;Do+I+smell+a+scent+of+cinnamon%3F+Or+is+it+just+me%3F;I+hope+I'll+have+time+to+bake+after+this...;Ding!+Finished+to+perfection...!)](https://git.io/typing-svg)
