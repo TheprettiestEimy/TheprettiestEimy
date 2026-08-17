@@ -3,14 +3,17 @@
 <br><p align="center"><br>${\textsf{\color{#ff0000}PSA; Do NOT harass anyone on my behalf?? If you see someone copying my skins , or mocking me in general, either whisper me about it}}$
 <br><p align="center"><br>${\textsf{\color{#ff0000}or send me a message on my ata, do not harass people on my behalf, that makes the situation worse. Ty !!}}$
 # 
-<br><p align="center">![visitors](https://visitor-badge.laobi.icu/badge?page_id=sw33tsug4rcookie&left_text=Snowflakes..&left_color=%2398c0ec&right_color=%23c997f2)
-<br><p align="center">[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Edu+VIC+WA+NT+Hand&weight=500&pause=1000&color=9E73F7&background=FF89DD00&center=true&vCenter=true&width=435&lines=Did+I+smudge+my+icing+makeup...%3F;Do+I+smell+a+scent+of+cinnamon%3F+Or+is+it+just+me%3F;I+hope+I'll+have+time+to+bake+after+this...;Ding!+Finished+to+perfection...!)](https://git.io/typing-svg)
-<br><p align="center"><img width="2048" src="https://github.com/user-attachments/assets/7c19b868-9a97-45d8-8d62-fa28eebeec30" />
+<br><p align="center">![visitors](https://visitor-badge.laobi.icu/badge?page_id=sw33tsug4rcookie&left_text=Sprinkles&left_color=%23f9b9e5&right_color=%23b3ea9e)
+<br><p align="center">[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Edu+VIC+WA+NT+Hand&weight=500&pause=1000&color=CEFFD7&background=FF89DD00&center=true&vCenter=true&width=435&lines=Did+I+smudge+my+icing+makeup...%3F;Do+I+smell+a+scent+of+cinnamon%3F+Or+is+it+just+me%3F;I+hope+I'll+have+time+to+bake+after+this...;Ding!+Finished+to+perfection...!)](https://git.io/typing-svg)
+<br><p align="center"><img width="2048"  src="https://github.com/user-attachments/assets/177ad01e-0147-45e2-a51d-49cc96d32d30" />
 
-<br><p align="center"><br>${\textsf{\color{#ad84e7}Indie}}$ ${\textsf{\color{#a68cee}or}}$ ${\textsf{\color{#9f93f4}Ginger .}}$ <img width="28"  src="https://github.com/user-attachments/assets/365c1606-ef2a-4bb1-89c4-aca97a9ff470" /> 
-<br><p align="center"><br>${\textsf{\color{#979bf9}Eighteen, }}$ ${\textsf{\color{#8fa3fc}Lithromantic + Omnisexual , }}$ ${\textsf{\color{#87aafe} Bigender !}}$ <img width="28"  src="https://github.com/user-attachments/assets/ed735b0d-22b8-44d0-aae1-d7e3457de195" />
+<br><p align="center">${\textsf{\color{#ffdbe5}𝐼𝓃𝒹𝒾𝑒 𝑜𝓇 𝒢𝒾𝓃𝑔𝑒𝓇}}$
+<br><p align="center"><br>${\textsf{\color{#fbc8d6}𝐸𝒾𝑔𝒽𝓉𝑒𝑒𝓃, }}$ 
+${\textsf{\color{#f5abbf} 𝓠𝓾𝓮𝓼𝓽𝓲𝓸𝓷𝓲𝓷𝓰 𝓛𝓲𝓽𝓱𝓻𝓸𝓶𝓪𝓽𝓲𝓬 / 𝓞𝓶𝓷𝓲𝓼𝓮𝔁𝓾𝓪𝓵 + 𝓑𝓲𝓰𝓮𝓷𝓭𝓮𝓻
+}}$
 <br><p align="center"><br>${\textsf{\color{#7ab8fe}Ginger irl}}$ ${\textsf{\color{#74bffc}/Fictkin}}$
-<br><p align="center"><img width="736"  src="https://github.com/user-attachments/assets/832e0edd-b35e-4e9b-b858-d88422e7ab2a" />
+<br><p align="center"><img width="735"  src="https://github.com/user-attachments/assets/7f9f1b6d-9ed9-4d64-998e-adacd29286db" />
+<br><p align="center">${\textsf{\color{#f778e6} Me + her , , <3 (art not mine)}}$
 <br><p align="center">${\textsf{\color{#AAD4F9}Astro yume . }}$ <img width="20"  src="https://github.com/user-attachments/assets/bdb5bc9b-9765-4153-9781-4ecd9fc50305" />
  ${\textsf{\color{#58AEF9}Dbls iwc ,<3}}$ <img width="99"  src="https://github.com/user-attachments/assets/35debc21-e34f-47c4-9782-6b85c1270781" />
 <br><p align="center"><img width="2048"  src="https://github.com/user-attachments/assets/ed1f36a0-c8fc-46af-b3e3-f2de4d077c88" />
