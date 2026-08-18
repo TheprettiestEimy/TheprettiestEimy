@@ -5,7 +5,7 @@
 # 
 <br><p align="center">![visitors](https://visitor-badge.laobi.icu/badge?page_id=sw33tsug4rcookie&left_text=Sprinkles&left_color=%23f9b9e5&right_color=%23b3ea9e)
 <br><p align="center">[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Edu+VIC+WA+NT+Hand&weight=500&pause=1000&color=CEFFD7&background=FF89DD00&center=true&vCenter=true&width=435&lines=Did+I+smudge+my+icing+makeup...%3F;Do+I+smell+a+scent+of+cinnamon%3F+Or+is+it+just+me%3F;I+hope+I'll+have+time+to+bake+after+this...;Ding!+Finished+to+perfection...!)](https://git.io/typing-svg)
-<br><p align="center"><img width="2048"  src="https://github.com/user-attachments/assets/177ad01e-0147-45e2-a51d-49cc96d32d30" />
+<br><p align="center"><img width="2048"  src="https://github.com/user-attachments/assets/d6fe6a2c-0398-4917-b809-3426cfce06e9" />
 
 <br><p align="center">${\textsf{\color{#ffdbe5}𝐼𝓃𝒹𝒾𝑒 𝑜𝓇 𝒢𝒾𝓃𝑔𝑒𝓇}}$
 <br><p align="center"><br>${\textsf{\color{#fbc8d6}𝐸𝒾𝑔𝒽𝓉𝑒𝑒𝓃, }}$ 
@@ -16,7 +16,8 @@ ${\textsf{\color{#f5abbf} 𝓠𝓾𝓮𝓼𝓽𝓲𝓸𝓷𝓲𝓷𝓰 𝓛𝓲�
 <br><p align="center">${\textsf{\color{#f778e6} Me + her , , <3 (art not mine)}}$
 <br><p align="center">${\textsf{\color{#AAD4F9}Astro yume . }}$ <img width="20"  src="https://github.com/user-attachments/assets/bdb5bc9b-9765-4153-9781-4ecd9fc50305" />
  ${\textsf{\color{#58AEF9}Dbls iwc ,<3}}$ <img width="99"  src="https://github.com/user-attachments/assets/35debc21-e34f-47c4-9782-6b85c1270781" />
-<br><p align="center"><img width="2048"  src="https://github.com/user-attachments/assets/ed1f36a0-c8fc-46af-b3e3-f2de4d077c88" />
+<br><p align="center"><img width="2048"  src="https://github.com/user-attachments/assets/d0c07cda-5ce4-43dc-a7f7-57d6a74be2cd" />
+
 
 <br> ${\textsf{\color{#90f4ec}⠀⠀　⠀✿⠀　Check straw for more / -15 dni　　　　₊　　˙　}}$ 
 
@@ -27,7 +28,7 @@ ${\textsf{\color{#f5abbf} 𝓠𝓾𝓮𝓼𝓽𝓲𝓸𝓷𝓲𝓷𝓰 𝓛𝓲�
 <br><p align="right"><img width="99"  src="https://github.com/user-attachments/assets/b26b6f83-2b9a-44bc-8375-09ddf3a0cde2" />
 <br> ${\textsf{\color{#70e3f9}　　　𝄢　🇧​​🇪​​🇨​​🇦​​🇺​​🇸​​🇪​ ​🇲​​🇾​ ​🇭​​🇪​​🇦​​🇷​​🇹​ ​🇧​​🇪​​🇦​​​​🇹​​🇸​ ​🇫​​🇴​​🇷​ ​🇾​​🇴​​🇺​ ​🇫​​🇷​​🇴​​🇲​ ​🇹​​🇭​​🇪​ ​🇧​​🇪​​🇬​​🇮​​🇳​​🇳​​🇮​​🇳​​🇬​. ' ‿ }}$ <img width="20"  src="https://github.com/user-attachments/assets/5552f773-707f-4c2b-ad62-c3cda6cd8c08" />
 
-<br><p align="center"> <img width="2048"  src="https://github.com/user-attachments/assets/5aed54a5-42a3-4c9d-a016-30f985be6eff" />
+<br><p align="center"> <img width="2048"  src="https://github.com/user-attachments/assets/30e4b867-1e2c-4ec1-abbb-e7105d6d0208" />
 
 
 <br><p align="center">${\textsf{\color{#69d9fe}Yes, I do have 140+ Ginger skins !! No this doesnt mean take inspo or copy them!!}}$ 
@@ -39,7 +40,8 @@ ${\textsf{\color{#f5abbf} 𝓠𝓾𝓮𝓼𝓽𝓲𝓸𝓷𝓲𝓷𝓰 𝓛𝓲�
 
 <br><p align="center"> ${\textsf{\color{#85a5ff}.˚⊹. ࣪𓉸 ࣪⊹˚. check straw + ata .˚⊹. ࣪𓉸 ࣪⊹˚.}}$
 <br><p align="center"> ${\textsf{\color{#9197fc}If someone I interact with is problematic, let me know !!}}$ 
-<br><p align="center"> <img width="2048" src="https://github.com/user-attachments/assets/da0000f2-b290-4419-87a4-eccc94b9a328" />
+<br><p align="center"> <img width="2048" src="https://github.com/user-attachments/assets/49ad1060-e2d3-4dd3-bf8a-2d990de339d5" />
+
 
 
 <br> ${\textsf{\color{#9d88f2} Stamps ok?}}$ 
@@ -54,9 +56,7 @@ ${\textsf{\color{#f5abbf} 𝓠𝓾𝓮𝓼𝓽𝓲𝓸𝓷𝓲𝓷𝓰 𝓛𝓲�
 <img width="150"  src="https://github.com/user-attachments/assets/35346244-9abf-4077-a2fc-b225373b3a2b" /><img width="99"  src="https://github.com/user-attachments/assets/e47e5de4-1dd1-431f-8bc0-d35a3d0fac4a" /><img width="99"  src="https://github.com/user-attachments/assets/0a867b6c-d34f-4925-8bed-b32b88d35f05" /><img width="99"  src="https://github.com/user-attachments/assets/5ad36708-535e-40a2-ab73-f1c9202a94c6" /><img width="99"  src="https://github.com/user-attachments/assets/57977f50-0628-44ac-971a-07bad028a964" /><img width="150"  src="https://github.com/user-attachments/assets/55119d9f-610f-4662-af5b-a6dafe48260f" /><img width="150"  src="https://github.com/user-attachments/assets/f3ed82c6-81f6-46c5-97fe-063f616948c8" />
 
 
-<br><p align="center"><img width="184"  src="https://github.com/user-attachments/assets/2f269d23-c446-4df9-8554-e7fa87836e3d" />
-<img width="184"  src="https://github.com/user-attachments/assets/2f269d23-c446-4df9-8554-e7fa87836e3d" />
-<img width="184" height="25"  src="https://github.com/user-attachments/assets/2f269d23-c446-4df9-8554-e7fa87836e3d" />
+<br><p align="center"><img width="2048"  src="https://github.com/user-attachments/assets/dc753c4a-4388-4537-9902-d048b8618c5a" />
 
 
 All of my pt awards / nominations ! ty to you all for nominating and adding me!!
@@ -73,7 +73,7 @@ All of my pt awards / nominations ! ty to you all for nominating and adding me!!
 
 
 
-<br><p align="center"> <img width="2048" src="https://github.com/user-attachments/assets/7c19b868-9a97-45d8-8d62-fa28eebeec30" />
+<br><p align="center"> <img width="2048" height="435" alt="image" src="https://github.com/user-attachments/assets/1bf9af6f-7736-4d5d-9abd-a4d6b2748e7c" />
 
 
 
