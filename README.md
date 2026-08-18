@@ -19,27 +19,27 @@ ${\textsf{\color{#f5abbf} 𝓠𝓾𝓮𝓼𝓽𝓲𝓸𝓷𝓲𝓷𝓰 𝓛𝓲�
 <br><p align="center"><img width="2048"  src="https://github.com/user-attachments/assets/d0c07cda-5ce4-43dc-a7f7-57d6a74be2cd" />
 
 
-<br> ${\textsf{\color{#90f4ec}⠀⠀　⠀✿⠀　Check straw for more / -15 dni　　　　₊　　˙　}}$ 
+<br> ${\textsf{\color{#ED96D0}⠀⠀　⠀✿⠀　Check straw for more / -15 dni　　　　₊　　˙　}}$ 
 
 <br><p align="left"><img width="99"  src="https://github.com/user-attachments/assets/3208426c-c3bb-445d-96b2-8ff275a0ef95" />
-<br> ${\textsf{\color{#7eecf2}' ​🇮​​🇸​ ​🇹​​🇭​​🇮​​🇸​ ​🇹​​🇭​​🇪​ ​🇫​​🇪​​🇪​​🇱​​🇮​​🇳​​🇬​ ​🇴​​🇫​ ​🇱​​🇴​​🇻​​🇪​ ​🇹​​🇭​​🇦​​🇹​ ​🇮​ ​🇭​​🇦​​🇻​​🇪​ ​🇴​​🇳​​🇱​​🇾​ ​🇭​​🇪​​🇦​​🇷​​🇩​ ​🇦​​🇧​​🇴​​🇺​​🇹​? '　໒୧}}$　<img width="20"  src="https://github.com/user-attachments/assets/6aa9f57c-cfcc-40f4-87f1-1f1dfbc914da" />
+<br> ${\textsf{\color{#96EDB8}' ​🇮​​🇸​ ​🇹​​🇭​​🇮​​🇸​ ​🇹​​🇭​​🇪​ ​🇫​​🇪​​🇪​​🇱​​🇮​​🇳​​🇬​ ​🇴​​🇫​ ​🇱​​🇴​​🇻​​🇪​ ​🇹​​🇭​​🇦​​🇹​ ​🇮​ ​🇭​​🇦​​🇻​​🇪​ ​🇴​​🇳​​🇱​​🇾​ ​🇭​​🇪​​🇦​​🇷​​🇩​ ​🇦​​🇧​​🇴​​🇺​​🇹​? '　໒୧}}$　<img width="20"  src="https://github.com/user-attachments/assets/6aa9f57c-cfcc-40f4-87f1-1f1dfbc914da" />
 
 
 <br><p align="right"><img width="99"  src="https://github.com/user-attachments/assets/b26b6f83-2b9a-44bc-8375-09ddf3a0cde2" />
-<br> ${\textsf{\color{#70e3f9}　　　𝄢　🇧​​🇪​​🇨​​🇦​​🇺​​🇸​​🇪​ ​🇲​​🇾​ ​🇭​​🇪​​🇦​​🇷​​🇹​ ​🇧​​🇪​​🇦​​​​🇹​​🇸​ ​🇫​​🇴​​🇷​ ​🇾​​🇴​​🇺​ ​🇫​​🇷​​🇴​​🇲​ ​🇹​​🇭​​🇪​ ​🇧​​🇪​​🇬​​🇮​​🇳​​🇳​​🇮​​🇳​​🇬​. ' ‿ }}$ <img width="20"  src="https://github.com/user-attachments/assets/5552f773-707f-4c2b-ad62-c3cda6cd8c08" />
+<br> ${\textsf{\color{#ED96D2}　　　𝄢　🇧​​🇪​​🇨​​🇦​​🇺​​🇸​​🇪​ ​🇲​​🇾​ ​🇭​​🇪​​🇦​​🇷​​🇹​ ​🇧​​🇪​​🇦​​​​🇹​​🇸​ ​🇫​​🇴​​🇷​ ​🇾​​🇴​​🇺​ ​🇫​​🇷​​🇴​​🇲​ ​🇹​​🇭​​🇪​ ​🇧​​🇪​​🇬​​🇮​​🇳​​🇳​​🇮​​🇳​​🇬​. ' ‿ }}$ <img width="20"  src="https://github.com/user-attachments/assets/5552f773-707f-4c2b-ad62-c3cda6cd8c08" />
 
 <br><p align="center"> <img width="2048"  src="https://github.com/user-attachments/assets/30e4b867-1e2c-4ec1-abbb-e7105d6d0208" />
 
 
-<br><p align="center">${\textsf{\color{#69d9fe}Yes, I do have 140+ Ginger skins !! No this doesnt mean take inspo or copy them!!}}$ 
-<br><p align="center"> ${\textsf{\color{#69cdff} Do not copy or inspo off of my ponies, socials or github!??? idk why i have to CLARIFY THIS. }}$ 
-<br><p align="center"> ${\textsf{\color{#6fc1ff}Yes I am THE Ginger of Ponytown, please int with me I dont bite }}$ 
+<br><p align="center">${\textsf{\color{#D396ED}Yes, I do have 140+ Ginger skins !! No this doesnt mean take inspo or copy them!!}}$ 
+<br><p align="center"> ${\textsf{\color{#96E3ED} Do not copy or inspo off of my ponies, socials or github!??? idk why i have to CLARIFY THIS. }}$ 
+<br><p align="center"> ${\textsf{\color{#A8F5D0}Yes I am THE Ginger of Ponytown, please int with me I dont bite }}$ 
 
-<br><p align="center">${\textsf{\color{#79b3ff}I am NOT my friends. Do not group me into drama with them. I block FREELY. Do not come and harass me if i have blocked you!!}}$ ${\textsf{\color{#76AAEF}And to the person stalking my ATA and insulting me, say it to my FACE.<3}}$
+<br><p align="center">${\textsf{\color{#F362B4}I am NOT my friends. Do not group me into drama with them. I block FREELY. Do not come and harass me if i have blocked you!!}}$ ${\textsf{\color{#76AAEF}And to the person stalking my ATA and insulting me, say it to my FACE.<3}}$
 
 
-<br><p align="center"> ${\textsf{\color{#85a5ff}.˚⊹. ࣪𓉸 ࣪⊹˚. check straw + ata .˚⊹. ࣪𓉸 ࣪⊹˚.}}$
-<br><p align="center"> ${\textsf{\color{#9197fc}If someone I interact with is problematic, let me know !!}}$ 
+<br><p align="center"> ${\textsf{\color{#8FEA92}.˚⊹. ࣪𓉸 ࣪⊹˚. check straw + ata .˚⊹. ࣪𓉸 ࣪⊹˚.}}$
+<br><p align="center"> ${\textsf{\color{#EA8FD1}If someone I interact with is problematic, let me know !!}}$ 
 <br><p align="center"> <img width="2048" src="https://github.com/user-attachments/assets/49ad1060-e2d3-4dd3-bf8a-2d990de339d5" />
 
 
@@ -73,7 +73,8 @@ All of my pt awards / nominations ! ty to you all for nominating and adding me!!
 
 
 
-<br><p align="center"> <img width="2048" height="435" alt="image" src="https://github.com/user-attachments/assets/1bf9af6f-7736-4d5d-9abd-a4d6b2748e7c" />
+<br><p align="center"> <img width="2048"  src="https://github.com/user-attachments/assets/1bf9af6f-7736-4d5d-9abd-a4d6b2748e7c" />
+-# dividers not mine , credits 2 anitalenia on tumblr..
 
 
 
