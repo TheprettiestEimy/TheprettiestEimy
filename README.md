@@ -9,8 +9,7 @@
 
 <br><p align="center">${\textsf{\color{#ffdbe5}𝐼𝓃𝒹𝒾𝑒 𝑜𝓇 𝒢𝒾𝓃𝑔𝑒𝓇}}$
 <br><p align="center"><br>${\textsf{\color{#fbc8d6}𝐸𝒾𝑔𝒽𝓉𝑒𝑒𝓃, }}$ 
-${\textsf{\color{#f5abbf} 𝓠𝓾𝓮𝓼𝓽𝓲𝓸𝓷𝓲𝓷𝓰 + 𝓞𝓶𝓷𝓲𝓼𝓮𝔁𝓾𝓪𝓵 + 𝓑𝓲𝓰𝓮𝓷𝓭𝓮𝓻
-}}$
+${\textsf{\color{#f5abbf}  𝓞𝓶𝓷𝓲𝓼𝓮𝔁𝓾𝓪𝓵 + 𝓑𝓲𝓰𝓮𝓷𝓭𝓮𝓻}}$
 <br><p align="center"><br>${\textsf{\color{#9CE8AB}𝒢𝒾𝓃𝑔𝑒𝓇 𝒻𝒾𝒸𝓉𝓀𝒾𝓃}}$ ${\textsf{\color{#9CE8AB}/𝐼𝓇𝓁}}$
 <br><p align="center"><img width="735"  src="https://github.com/user-attachments/assets/7f9f1b6d-9ed9-4d64-998e-adacd29286db" />
 <br><p align="center">${\textsf{\color{#f778e6} Me + her , , <3 (art not mine)}}$
