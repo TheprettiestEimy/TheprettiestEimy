@@ -68,7 +68,8 @@ All of my pt awards / nominations ! ty to you all for nominating and adding me!!
 <img width="351" height="32" alt="image" src="https://github.com/user-attachments/assets/961f7e18-2726-4026-b8b9-358706694667" />
 <img width="818" height="52" alt="image" src="https://github.com/user-attachments/assets/edcaeb99-416f-4243-83a0-654497a946bf" />
 <img width="404" height="36" alt="image" src="https://github.com/user-attachments/assets/e7013772-77c4-487f-9e1e-8777b4f6bdaa" />
-<img width="390" height="31" alt="image" src="https://github.com/user-attachments/assets/2436cfd6-59c2-4cf0-821c-701fcd03ce4f" />
+<img width="390" height="31" alt="image" src="https://github.com/user-attachments/assets/2436cfd6-59c2-4cf0-821c-701fcd03ce4f" /><img width="274" height="31" alt="image" src="https://github.com/user-attachments/assets/816c3811-a7d6-4ca8-8f10-822a3d5966d9" />
+
 
 
 
